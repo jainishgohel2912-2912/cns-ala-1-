@@ -1,1 +1,1 @@
-https://thriving-macaron-cc66c7.netlify.app/
+https://jainish-ala-1.netlify.app/
